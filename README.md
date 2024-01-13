@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Aficiodo very new here
-- 👀 I’m interested in Tech, and Familey
+- 👀 I’m interested in Tech, and Family
 - 🌱 I’m currently learning Cyber Security
 - 💞️ I’m looking to collaborate on anyproject that can catch my eyes
 - 📫 How to reach me ...Email
